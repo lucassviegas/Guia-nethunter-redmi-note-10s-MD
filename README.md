@@ -1,1 +1,0 @@
-# Guia-nethunter-redmi-note-10s-MD
